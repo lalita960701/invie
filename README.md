@@ -1,2 +1,0 @@
-# invie
-Tus guitarras definitivas
